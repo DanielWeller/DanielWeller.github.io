@@ -11,3 +11,4 @@ Nach dem frühen Tod der Mutter wächst er auf einer Farm bei Verwandten auf.
 	* Fußball
 	* Sport
 	
+> Wer nicht wagt, der nicht gewinnt. 
