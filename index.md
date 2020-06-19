@@ -12,3 +12,5 @@ Nach dem frühen Tod der Mutter wächst er auf einer Farm bei Verwandten auf.
 	* Sport
 	
 > Wer nicht wagt, der nicht gewinnt. 
+
+<img src= "https://aspetos.com/imagecache/c/6/8/6/a/c686ac7e7a6528e358ff7216e4168ae922edf4af.jpeg"/>
